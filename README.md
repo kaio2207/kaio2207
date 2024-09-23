@@ -1,16 +1,17 @@
-## Hi there 👋
-
-<!--
-**kaio2207/kaio2207** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## **🇧🇷oi meu nome kaio🗿🇧🇷**
+- 🧑🏻‍🎓 atualmente eu sou estudante                                                                              
+- ⚽️ meu hobby é jogar bola
+- 🏋️‍♂eu treino na academia                                                                           
+- tenho 16 anos 
+- jogador da base do internacional🇦🇹
+- 🚗dono de celta 2.6 turbo
+-
+- 
+-![cr7](https://media.tenor.com/ZgsyS1epGSYAAAAM/siuuu-ronaldo.gif)
+-![cris](https://media.tenor.com/QmD5eBr2pSAAAAAM/el-bicho-siuu.gif)
+-![cris](https://media.tenor.com/QmD5eBr2pSAAAAAM/el-bicho-siuu.gif)
+-![cris](https://media.tenor.com/QmD5eBr2pSAAAAAM/el-bicho-siuu.gif)
+-![cris](https://media.tenor.com/QmD5eBr2pSAAAAAM/el-bicho-siuu.gif)
+-![cris](https://media.tenor.com/QmD5eBr2pSAAAAAM/el-bicho-siuu.gif)
+-![cris](https://media.tenor.com/QmD5eBr2pSAAAAAM/el-bicho-siuu.gif)
+-![cr7](https://media.tenor.com/ZgsyS1epGSYAAAAM/siuuu-ronaldo.gif)
